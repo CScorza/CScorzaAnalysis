@@ -1,4 +1,4 @@
-# CScorzaAnalysis
+![Analysi's](https://github.com/user-attachments/assets/6810f7b1-ce47-45a8-9f75-6acef0172643)
 
 
 ## Descrizione (Italiano)
